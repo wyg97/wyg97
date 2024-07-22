@@ -9,7 +9,7 @@ I am Claire Wang, a research data analyst at Brandeis University.
 - 📫 Feel free to contact me for research collaborations: email at  .
 
 ### Past Experiences
-- M.S. degress in Business Anlaytics from Suffolk University in 05/2022.
+- M.S. degree in Business Anlaytics from Suffolk University in 05/2022.
 
 ## Stats
 
